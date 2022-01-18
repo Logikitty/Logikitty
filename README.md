@@ -2,7 +2,7 @@
 - 👀 I’m interested in 
 - 🌱 I’m currently learning how to ingor this as much as i can
 - 💞️ I’m looking to collaborate on a emulater with a friend
-- 📫 How to reach me well up DON'T!
+- 📫 How to reach me well you DON'T
 - :P
 
 
